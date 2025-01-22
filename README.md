@@ -1,2 +1,2 @@
 # design
-Design portfolio of Colin Stasuik
+Colin Stasuik | Design
